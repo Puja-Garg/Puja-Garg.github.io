@@ -11,9 +11,21 @@ As a woman in the field, I am deeply passionate about promoting diversity, equit
 
 
 Experience
+
+
 HR and Operations - The Atelier 
+
+
 Founder - The Complete Stack 
+
+
 Human Resources Manager - Parkmed Healthcare
+
+
 Team Lead - SiE Brains Technology Services Pvt Ltd
+
+
 Manager - Training and Recruitment - Max Life Insurance Company Limited
+
+
 Manager - Training and Recruitment - HDFC Life
