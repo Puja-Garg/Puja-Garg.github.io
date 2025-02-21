@@ -1,4 +1,7 @@
 HR Analyst | HR Technology | HRBP | AI & Automation | Power BI | Tableau | Advanced Excel |Python | SQL| MIS | MBA | ICFAI University
+
+
+
 About me: Passionate about fostering inclusive and thriving work environments, I bring a wealth of experience in human resources and facilities management to the table. With a career spanning over a decade, I have honed my skills in navigating the complexities of HR and facilities across diverse industries
 My journey in human resources encompasses strategic formulation, employee life cycle management, performance appraisal, and remuneration and benefits administration. I am committed to creating positive employee experiences and ensuring compliance with policies and regulations, fostering a culture of growth and collaboration.
 
